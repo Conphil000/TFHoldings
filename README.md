@@ -14,8 +14,8 @@ Final Round:
 45-60 Minute Interview with COO
 45-60 Minute Interview with Project Manager
 
-$115K/Year, Had about 2 years of Experience.
+$115K/Year, about 2 years of Experience.
 
-> 6 hour interview for them to end up not even providing feedback. Seemed like a shady company from reviewing posts online and the producy seems predatory.
+>> 6 hour interview for them to end up not even providing feedback. Seemed like a shady company from reviewing posts online and the producy seems predatory.
 
 
