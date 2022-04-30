@@ -16,6 +16,6 @@ Final Round:
 
 $115K/Year, about 2 years of Experience.
 
->> 6 hour interview for them to end up not even providing feedback. Seemed like a shady company from reviewing posts online and the producy seems predatory. That leads me to dox the data and project they sent me. Enjoy.
+>> 6 hour interview for them to end up not even providing feedback. Seemed like a shady company from reviewing posts online and the product seems predatory. That leads me to dox the data and project they sent me. Enjoy.
 
 
