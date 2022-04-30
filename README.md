@@ -7,7 +7,7 @@ Initial:
 30 Minute HR Screen
 30 Minute Mental Aptitude Test?
 45 Minute Case Study
-~2 hours *Take home Case Study 72 hours to Complete* # My opinion is they shouldn't assign something that takes more than 2 hours to complete so I limit myself to that
+~2 hours *Take home Case Study 72 hours to Complete* My opinion is they shouldn't assign something that takes more than 2 hours to complete so I limit myself to that
 
 Final Round:
 45-60 Minute Case Study
